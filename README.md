@@ -1,0 +1,1 @@
+#HIBRYDA test coin
